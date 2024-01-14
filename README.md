@@ -1,0 +1,6 @@
+- hi, nice to meet ya. u can call me harvey. im 15, idk what to add, ion even know what to do on this website.
+- i’m interested in videogames(horror ones often), music and painting
+- pronouns: he/him
+- kinlist : aesop(idv), kaveh(gi), edgar(idv), stolas(hb), ritsu(enst), tweek(sp), craig(sp), ren/akira(p5), lain.
+- i like calm people. sometimes i dont mind if some1 sit next2 me, even if im saying "i dont like companies/people".im just feeling lonely and afraid to accept it.
+- im not interested in girls at all

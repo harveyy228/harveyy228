@@ -1,5 +1,6 @@
-- hi, nice to meet ya. u can call me harvey. im 16.
-- i’m interested in videogames(horror ones often), music and painting
+- ru/eng
+- hi. u can call me harvey or alex(саша). im 16. infp/intp.
+- i play wuwa, like music and painting
 - pronouns: he/him
-- i like calm people. sometimes i dont mind if some1 sit next2 me in pony town, even if im saying "i dont like companies/people".im just feeling lonely and afraid to accept it.
-- im not interested in girls at all
+- i like calm people
+- i LOVE hannibal. i HEART will graham.
